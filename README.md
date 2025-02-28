@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...projects 
 - 📫 How to reach me ...Nbyongewavs@gmail.com
 - 😄 Pronouns: ...waves 
-- ⚡ Fun fact: ...if we Oranges are Orange and we call it Orange why not call Bananas Yellow? 
+- ⚡ Fun fact: ...if Oranges are Orange and we call it Orange why not call Bananas Yellow? 
 
 <!---
 WAVS30/WAVS30 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
